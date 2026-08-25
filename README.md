@@ -10,8 +10,9 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">ㅤ ㅤ ㅤ �
     </tr>
   </table>
   
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ $\color{#FF0095}\textsf{Sub}$ $\color{#8F8F8F}\textsf{/Sebby}$
-ㅤ ㅤ ㅤHe/they/any
+ ㅤ ㅤ ㅤ ㅤ   ㅤ $\color{#FFff}\textsf{INT/WHISPER TO INT}$ $\color{#FFfff}\textsf{Freely}$  ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤㅤ
+$\color{#FFffff}\textsf{SUBSPACE/Sebby}$ $\color{#FFffff}\textsf{He}$ $\color{#FFffff}\textsf{They/any}$
+
 
 ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ──── .✦ c+h freely/enc, dncoveruf no/lateresps, always afk
 
