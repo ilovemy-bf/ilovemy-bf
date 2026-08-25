@@ -2,8 +2,17 @@
 src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">
 
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ<img align="center" width="20px" src="https://cdn.imgchest.com/files/ce166940eeb2.webp"> "This city will be even more beautiful under Blackrock's reign."
-
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ "This city will be even more beautiful under Blackrock's reign."
+<br>  
+  <table>
+    <tr>
+      <td>
+     <img align="center" width="20px" src="https://cdn.imgchest.com/files/ce166940eeb2.webp"> ${\textsf{\color{#F5D9D7} This}}$ ${\textsf{\color{#F5E0C4} City}}$ ${\textsf{\color{#F8EAD5} Will}}$ ${\textsf{\color{#E5F4D9} Be}}$ ${\textsf{\color{#E4E1EB} Even}}$ ${\textsf{\color{#F4F3EA} more}}$ ${\textsf{\color{#F4F3EA} beautiful}}$ ${\textsf{\color{#F4F3EA} under}}$<br>
+ㅤ ㅤ ㅤㅤ ㅤ ㅤ ${\textsf{\color{#F4F3EA} Blacrock's}}$ ${\textsf{\color{#F4F3EA} reign}}$<br>
+      </td>
+    </tr>
+  </table>
+  
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ $\color{#FF0095}\textsf{Sub}$ $\color{#8F8F8F}\textsf{/Sebby}$
 ㅤ ㅤ ㅤHe/they/any
 
