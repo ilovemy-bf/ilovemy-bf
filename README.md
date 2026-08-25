@@ -10,7 +10,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">ㅤ ㅤ ㅤ �
     </tr>
   </table>
   
- ㅤ ㅤ ㅤ ㅤ   ㅤ $\color{#FFff}\textsf{INT/WHISPER TO INT}$ $\color{#FFfff}\textsf{Freely}$  ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤㅤ
+ ㅤ ㅤ ㅤ ㅤ   ㅤ $\color{#FFff}\textsf{INT/WHISPER TO INT}$ $\color{#FFfff}\textsf{Freely}$  ㅤ ㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤㅤ
 $\color{#FFffff}\textsf{SUBSPACE/Sebby}$ $\color{#FFffff}\textsf{He}$ $\color{#FFffff}\textsf{They/any}$
 
 
