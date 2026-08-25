@@ -10,8 +10,9 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">ㅤ ㅤ ㅤ �
     </tr>
   </table>
   
- ㅤ ㅤ ㅤ ㅤ   ㅤ $\color{#FFff}\textsf{INT/WHISPER TO INT}$ $\color{#FFfff}\textsf{Freely}$  ㅤ ㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤㅤ
-$\color{#FFffff}\textsf{SUBSPACE/Sebby}$ $\color{#FFffff}\textsf{He}$ $\color{#FFffff}\textsf{They/any}$
+ ㅤ $\color{#FFff}\textsf{INT/WHISPER TO INT}$ $\color{#FFfff}\textsf{Freely.}$ $\color{#FFffff}\textsf{Would love to be oomfies.}$ $\color{#FFffff}\textsf{but is very awkward/anxious and shy.}$ $\color{#FFffff}\textsf{tone tags would be really}$ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
+ㅤ  $\color{#FFffff}\textsf{appreciated!}$ㅤ ㅤ ㅤ ㅤㅤ ㅤ  
+ 
 
 
 ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ──── .✦ c+h freely/enc, dncoveruf no/lateresps, always afk
