@@ -19,5 +19,5 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">
 
 <br clear="left">
 
-<img align="left" width="259"
+<img align="left" width="20px"
 src="https://cdn.imgchest.com/files/ce166940eeb2.webp">
