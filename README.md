@@ -2,7 +2,7 @@
 src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">
 
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ<img align="left" width="20px" src="https://cdn.imgchest.com/files/ce166940eeb2.webp">"This city will be even more beautiful under Blackrock's reign."
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ<img align="left" width="20px" src="https://cdn.imgchest.com/files/ce166940eeb2.webp"> "This city will be even more beautiful under Blackrock's reign."
 
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ $\color{#FF0095}\textsf{Sub}$ $\color{#8F8F8F}\textsf{/Sebby}$
 ㅤ ㅤ ㅤHe/they/any
