@@ -10,8 +10,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">ㅤ ㅤ ㅤ �
     </tr>
   </table>
   
- ㅤ $\color{#FFff}\textsf{INT/WHISPER TO INT}$ $\color{#FFfff}\textsf{Freely.}$ $\color{#FFffff}\textsf{Would love to be oomfies.}$ $\color{#FFffff}\textsf{but is very awkward/anxious and shy.}$ $\color{#FFffff}\textsf{tone tags would be really}$ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
-ㅤ  $\color{#FFffff}\textsf{appreciated!}$ㅤ ㅤ ㅤ ㅤㅤ ㅤ  
+ ㅤ $\color{#FFff}\textsf{INT/WHISPER TO INT}$ $\color{#FFfff}\textsf{freely,}$ $\color{#FFffff}\textsf{would}$ $\color{#FFffff}\textsf{love}$ $\color{#FFffff}\textsf{to}$ $\color{#FFffff}\textsf{be}$ $\color{#FFffff}\textsf{oomfies}$ $\color{#FFffff}\textsf{but}$ $\color{#FFffff}\textsf{is}$ $\color{#FFffff}\textsf{really}$ $\color{#FFffff}\textsf{nervous/}$ $\color{#FFffff}\textsf{anxious}$ $\color{#FFffff}\textsf{and}$ $\color{#FFffff}\textsf{shy}$ㅤ ㅤㅤ ㅤ  
  
 
 
