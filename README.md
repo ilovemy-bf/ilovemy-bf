@@ -14,7 +14,7 @@ $\color{#FFff}\textsf{INT/WHISPER TO INT}$ $\color{#FFfff}\textsf{freely,}$ $\co
 $\color{#FFffff}\textsf{dont}$ $\color{#FFffff}\textsf{be}$ $\color{#FFffff}\textsf{weird}$ $\color{#FFffff}\textsf{please,}$ $\color{#FFffff}\textsf{my}$
 
     
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  <a href="https://github.com/ilovemy-gf">
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  <a href="https://github.com/ilovemy-gf">
   <img src="https://komarev.com/ghpvc/?username=ilovemy-gf&label=BIOGRAFTS&color=ff0095&style=flat" />
 </a>
 
