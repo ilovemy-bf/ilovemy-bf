@@ -15,7 +15,7 @@ $\color{#F51264}\textsf{dont}$ $\color{#FFffff}\textsf{be}$ $\color{#860045}\tex
 
     
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  <a href="https://github.com/ilovemy-gf">
-  <img src="https://komarev.com/ghpvc/?username=ilovemy-gf&label=BIOGRAFTS&color=ff0095&style=flat" />
+  <img src="https://komarev.com/ghpvc/?username=ilovemy-gf&label=BIOGRAFTS&color=F51264&style=flat" />
 </a>
 
 <img align="center" width="80px" src="https://cdn.imgchest.com/files/8cb23fc49fdf.png"> 
