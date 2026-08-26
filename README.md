@@ -10,7 +10,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">ㅤ ㅤ ㅤ �
     </tr>
   </table>
   
-$\color{#F51264}\textsf{INT/WHISPER TO INT}$ $\color{#860045}\textsf{freely,}$ $\color{#FCD7DE}\textsf{would}$ $\color{#FCD7DE}\textsf{love}$ $\color{#FCD7DE}\textsf{to}$ $\color{#FCD7DE}\textsf{be}$ $\color{#F51264}\textsf{oomfies}$ $\color{#FCD7DE}\textsf{but}$ $\color{#FCD7DE}\textsf{is}$ $\color{#FCD7DE}\textsf{really}$ $\color{#860045}\textsf{nervous/}$ $\color{#F51264}\textsf{awkward}$ $\color{#FCD7DE}\textsf{and}$ $\color{#FCD7DE}\textsf{shy,}$ $\color{#860045}\textsf{tone}$ $\color{#F51264}\textsf{tags}$ $\color{#FCD7DE}\textsf{would}$ $\color{#FCD7DE}\textsf{be}$ $\color{#FCD7DE}\textsf{very}$ $\color{#860045}\textsf{appreciated!!}$ $\color{#FCD7DE}\textsf{int}$ $\color{#FCD7DE}\textsf{anyone}$ $\color{#FCD7DE}\textsf{just}$
+$\color{#F51264}\textsf{INT/WHISPER TO INT}$ $\color{#860045}\textsf{freely,}$ $\color{#FCD7DE}\textsf{would}$ $\color{#FCD7DE}\textsf{love}$ $\color{#FCD7DE}\textsf{to}$ $\color{#FCD7DE}\textsf{be}$ $\color{#F51264}\textsf{oomfies}$ $\color{#FCD7DE}\textsf{but}$ $\color{#FCD7DE}\textsf{is}$ $\color{#FCD7DE}\textsf{really}$ $\color{#860045}\textsf{nervous/}$ $\color{#F51264}\textsf{awkward}$ $\color{#FCD7DE}\textsf{and}$ $\color{#FCD7DE}\textsf{shy,}$ $\color{#860045}\textsf{tone}$ $\color{#F51264}\textsf{tags}$ $\color{#FCD7DE}\textsf{would}$ $\color{#FCD7DE}\textsf{be}$ $\color{#FCD7DE}\textsf{very}$ $\color{#FCD7DE}\textsf{appreciated!!}$ $\color{#860045}\textsf{int}$ $\color{#FCD7DE}\textsf{anyone}$ $\color{#FCD7DE}\textsf{just}$
 $\color{#FCD7DE}\textsf{dont}$ $\color{#FCD7DE}\textsf{be}$ $\color{#F51264}\textsf{weird}$ $\color{#FCD7DE}\textsf{please,}$ 
 
     
