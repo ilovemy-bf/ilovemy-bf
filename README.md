@@ -1,4 +1,4 @@
-<img align="left" width="480"
+<img align="left" width="470"
 src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
 <br>  
   <table>
