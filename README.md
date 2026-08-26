@@ -10,8 +10,8 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Screenshot%20(991).png">ㅤ ㅤ ㅤ �
     </tr>
   </table>
   
-$\color{#F51264}\textsf{INT/WHISPER TO INT}$ $\color{#860045}\textsf{freely,}$ $\color{#FFffff}\textsf{would}$ $\color{#F51264}\textsf{love}$ $\color{#FFffff}\textsf{to}$ $\color{#860045}\textsf{be}$ $\color{#FFffff}\textsf{oomfies}$ $\color{#F51264}\textsf{but}$ $\color{#FFffff}\textsf{is}$ $\color{#860045}\textsf{really}$ $\color{#FFffff}\textsf{nervous/}$ $\color{#F51264}\textsf{anxious}$ $\color{#FFffff}\textsf{and}$ $\color{#860045}\textsf{shy,}$ $\color{#FFffff}\textsf{tone}$ $\color{#F51264}\textsf{tags}$ $\color{#FFffff}\textsf{would}$ $\color{#860045}\textsf{be}$ $\color{#FFffff}\textsf{very}$ $\color{#F51264}\textsf{appreciated!!}$ $\color{#FFffff}\textsf{int}$ $\color{#860045}\textsf{anyone}$ $\color{#FFffff}\textsf{just}$
-$\color{#F51264}\textsf{dont}$ $\color{#FFffff}\textsf{be}$ $\color{#860045}\textsf{weird}$ $\color{#FFffff}\textsf{please,}$ 
+$\color{#F51264}\textsf{INT/WHISPER TO INT}$ $\color{#860045}\textsf{freely,}$ $\color{#FCD7DE}\textsf{would}$ $\color{#FCD7DE}\textsf{love}$ $\color{#FCD7DE}\textsf{to}$ $\color{#FCD7DE}\textsf{be}$ $\color{#F51264}\textsf{oomfies}$ $\color{#FCD7DE}\textsf{but}$ $\color{#FCD7DE}\textsf{is}$ $\color{#FCD7DE}\textsf{really}$ $\color{#860045}\textsf{nervous/}$ $\color{#F51264}\textsf{awkward}$ $\color{#FCD7DE}\textsf{and}$ $\color{#FCD7DE}\textsf{shy,}$ $\color{#860045}\textsf{tone}$ $\color{#F51264}\textsf{tags}$ $\color{#FCD7DE}\textsf{would}$ $\color{#FCD7DE}\textsf{be}$ $\color{#FCD7DE}\textsf{very}$ $\color{#860045}\textsf{appreciated!!}$ $\color{#FCD7DE}\textsf{int}$ $\color{#FCD7DE}\textsf{anyone}$ $\color{#FCD7DE}\textsf{just}$
+$\color{#FCD7DE}\textsf{dont}$ $\color{#FCD7DE}\textsf{be}$ $\color{#F51264}\textsf{weird}$ $\color{#FCD7DE}\textsf{please,}$ 
 
     
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  <a href="https://github.com/ilovemy-gf">
