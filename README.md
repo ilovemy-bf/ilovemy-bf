@@ -21,7 +21,7 @@ $\color{#FCD7DE}\textsf{dont}$ $\color{#FCD7DE}\textsf{be}$ $\color{#F51264}\tex
  <img align="center" width="80px" src="https://cdn.imgchest.com/files/8cb23fc49fdf.png">ㅤ
  <img align="center" width="80px" src="https://cdn.imgchest.com/files/8cb23fc49fdf.png">ㅤ
  ㅤ
-ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ $\color{#FCD7DE}\textsf{Stampies!!`⎚⩊⎚´ -✧}$
+ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ $\color{#FCD7DE}\textsf{Stampies!!`⎚⩊⎚´ -✧}$
 
 <img align="center" width="80px" src="https://cdn.imgchest.com/files/8cb23fc49fdf.png"> <img align="center" width="80px" src="https://cdn.imgchest.com/files/8cb23fc49fdf.png"> <img align="center" width="80px" src="https://cdn.imgchest.com/files/54b7f7d525a0.png"> <img align="center" width="80px" src="https://cdn.imgchest.com/files/c71dfaaa25a2.png"> <img align="center" width="80px" src="https://cdn.imgchest.com/files/cd9fe7221e63.webp"> <img align="center" width="80px" src="https://cdn.imgchest.com/files/87c45a926092.png"> <img align="center" width="80px" src="https://cdn.imgchest.com/files/c1d6d33e010d.webp"> <img align="center" width="80px" src="https://cdn.imgchest.com/files/219636bcd665.webp"> <img align="center" width="80px" src="https://cdn.imgchest.com/files/9aae50514378.webp"> 
 
