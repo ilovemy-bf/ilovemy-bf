@@ -15,7 +15,7 @@ $\color{#FCD7DE}\textsf{dont}$ $\color{#FCD7DE}\textsf{be}$ $\color{#F51264}\tex
 
  ㅤ   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=16&duration=3300&pause=500&color=F51264&center=true&width=431&height=100&lines=I+miss+the+quiet♪.;+I+can't+deny+it.♪;+Am+i+to+fight+it?♪;+Cause+Even+after+all+is+said+and♪.;+DONE.;+I'm+only+having+fun♪." alt="Typing SVG" width="370px"/></a>
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  <a href="https://github.com/ilovemy-gf">
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  <a href="https://github.com/ilovemy-gf">
   <img src="https://komarev.com/ghpvc/?username=ilovemy-gf&label=BIOGRAFTS&color=F51264&style=flat" />
 </a>
 
