@@ -14,7 +14,7 @@ $\color{#F51264}\textsf{INT/WHISPER TO INT}$ $\color{#860045}\textsf{freely,}$  
 $\color{#FCD7DE}\textsf{dont}$ $\color{#FCD7DE}\textsf{be}$ $\color{#F51264}\textsf{weird}$ $\color{#FCD7DE}\textsf{please,}$ 
 <img align="center" width="20px" src="https://cdn.imgchest.com/files/7adf31a586e1.webp">
  ㅤ   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=16&duration=3300&pause=500&color=F51264&center=true&width=431&height=100&lines=I+miss+the+quiet♪.;+I+can't+deny+it.♪;+Am+i+to+fight+it?♪;+Cause+Even+after+all+is+said+and♪.;+DONE.;+I'm+only+having+fun♪." alt="Typing SVG" width="370px"/></a>
-ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ  <a href="https://github.com/ilovemy-gf">
+ㅤ ㅤ ㅤ ㅤ ㅤㅤ  ㅤ  <a href="https://github.com/ilovemy-gf">
   <img src="https://komarev.com/ghpvc/?username=ilovemy-gf&label=BIOGRAFTS&color=F51264&style=flat" />
 </a>
  ㅤ
